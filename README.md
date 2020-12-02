@@ -1,2 +1,2 @@
 # Tambah-nama-rizky-aria-mu-allim
-Nama dan cita-cita
+Rizky Aria Mu'allim, Sofware Engineer
